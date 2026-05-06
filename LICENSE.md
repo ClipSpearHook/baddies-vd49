@@ -1,4 +1,4 @@
-
+baddies Script new offers the most advanced baddies Script, with auto-farm and one-hit kill. Perfect for dominating any match.
 
 
 
